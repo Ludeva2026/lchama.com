@@ -1,1 +1,0 @@
-fintech solution for groups 
